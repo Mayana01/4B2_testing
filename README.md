@@ -8,7 +8,7 @@ for jara!!
 
 How e dey be, my people!
 
-
+We are perfectly splendid!
 
 
 
