@@ -7,3 +7,14 @@ extraordinary!
 for jara!!
 
 mr dami stop saying fork 
+
+
+
+
+
+Alhamdullahi, Allah is great.
+
+
+
+
+
